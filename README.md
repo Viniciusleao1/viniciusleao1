@@ -1,4 +1,4 @@
-Olá, meu nome é [@Viniciusleao1](https://github.com/Viniciusleao1)! 👋
+Olá, meu nome é [@Viniciusleao1](https://github.com/Viniciusleao1) 👋
 
 **Engenheiro de Software** | **Aprendiz apaixonado**
 
